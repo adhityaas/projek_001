@@ -1,6 +1,5 @@
 # projek_001
 projek pertama saya, izinnnnnn
 
-Adhitya Awaludin Setiawan <br>
-Adhitya
+Adhitya <br>
 XII 2
