@@ -1,2 +1,6 @@
 # projek_001
-Projek pertama saya
+projek pertama saya, izinnnnnn
+
+Adhitya Awaludin Setiawan
+Adhitya
+XII 2
